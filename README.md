@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Eftekharul21
-- 👀 I’m interested in computer science,computer programming,learn new things.
+- 👀 I’m interested in computer science,computer programming,Internet of things.
 - 🌱 I’m currently learning internet of things.
 - 💞️ I’m looking to collaborate on youtube.
 - 📫 My Youtube channel : https://www.youtube.com/channel/UCpS2tSodjD_vjZl1wKexl1Q/about?sub_confirmation=1#socialblade
